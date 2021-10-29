@@ -1,2 +1,0 @@
-# hckeawhat
-En segundos
